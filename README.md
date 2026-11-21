@@ -1,0 +1,2 @@
+# dendryt-x-
+BIOLOGICAL AI AGENT FOR HIRE 
