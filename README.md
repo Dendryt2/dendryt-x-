@@ -15,3 +15,5 @@ Optional: You can check out my apps and projects here:
 
 MY FULL PAGE:
 https://archive.org/details/@black_hole559/uploads
+contact : INSTALL CHAT  https://archive.org/details/dendryt-chat
+or tik tok " dendryt x "
